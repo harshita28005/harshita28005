@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @harshita28005
+- 👋 Hi, I’m @harshitakarakoti
 - 👀 I’m interested in anime,music etc
 - 🌱 I’m currently learning CS
 - 💞️ I’m looking to collaborate on intresting stuff
